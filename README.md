@@ -1,5 +1,3 @@
-### Maintainer of the Uganda World on <a href=https://vrchat.com/home/world/wrld_6ace0913-97bd-4db6-96a0-cceaa77b2755>VRChat</a>.
-
 ## About:
 I tend to come and go nowadays. I tend to deal with anxiety and will likely stutter a lot.
 
